@@ -1,2 +1,2 @@
 # gaming-trailer
-https://www.youtube.com/channel/UCKy1dAqELo0zrOtPkf0eTMw
+https://www.youtube.com/watch?v=aC7kn9cM1g0&list=RDaC7kn9cM1g0&start_radio=1
